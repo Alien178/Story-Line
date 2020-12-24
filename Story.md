@@ -1,1 +1,1 @@
-Once upon a time in New York City, There were four friend who were racers. Tony Toretto -  Dom Toretto brother, Margaret, Cisco, and Frostee. Tony and his friends were racing when they were approached by Dom and the CIA.
+Once upon a time in New York City, There were four friend who were racers. Tony Toretto -  Dom Toretto brother, Margaret, Cisco, and Frostee. Tony and his friends were racing when they were approached by Dom and the CIA. Dom tells his brother that he needs his help. Tony was ready and sacred to help the big brother.
